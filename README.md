@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently Studing at Polytechnic University Da Nang<br>👯 I’m looking to collaborate on FACBOOK<br>🤝 I’m looking for help with 日本語<br>🌱 I’m currently learning C , C++ , HTML , CSS , 日本語 , JAVASCRIPT(BASIC) , SQL<br>💬 Ask me to make a partner to learn 日本語<br>⚡I am a person who likes to search, discover new things and am quite a hard-working person 
+🔭 I’m currently Studing at Polytechnic University Da Nang<br>👯 I’m looking to collaborate on FACEBOOK<br>🤝 I’m looking for help with 日本語<br>🌱 I’m currently learning C , C++ , HTML , CSS , 日本語 , JAVASCRIPT(BASIC) , SQL<br>💬 Ask me to make a partner to learn 日本語<br>⚡I am a person who likes to search, discover new things and am quite a hard-working person 
 
 
 ## 🌐 Socials:
